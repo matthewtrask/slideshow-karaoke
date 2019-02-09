@@ -28,4 +28,6 @@
 
 [7 habits of successful kittens](https://www.slideshare.net/patrickmcghee712/7-habits-of-successful-kittens)
 
+[Types of laundry](https://www.slideshare.net/indianchefrecipe/types-of-laundry)
+
 [Elephants](https://www.slideshare.net/saurabhsuman123/elephants-58271128)
