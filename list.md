@@ -33,3 +33,5 @@
 [Elephants](https://www.slideshare.net/saurabhsuman123/elephants-58271128)
 
 [Flower arrangements](https://www.slideshare.net/davulurianilbabu/flower-arrangement-75322420)
+
+[Terry Chayisms](https://www.slideshare.net/tychay/living-without-linemen)
